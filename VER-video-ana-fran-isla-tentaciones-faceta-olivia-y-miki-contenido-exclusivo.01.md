@@ -1,6 +1,14 @@
 La pregunta que se hacen miles de internautas en redes sociales es clara: ¿cuál es el video de Fran y Ana del que todos hablan? Desde que comenzaron las especulaciones sobre una grabación íntima de estos participantes, que decidieron retirarse de la octava edición de 'La Isla de las Tentaciones', las plataformas digitales han sido testigos de las búsquedas del metraje.
 
-Este fenómeno ha capturado la atención de los usuarios, quienes, ansiosos por conocer los detalles, han inundado las redes con comentarios y teorías sobre el contenido del material filtrado.
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 El video en cuestión ha dejado a muchos boquiabiertos; su contenido, evidentemente subido de tono, ha suscitado un debate sobre la privacidad y la ética en la era digital. A medida que se difunden fragmentos y reacciones, la atención hacia la pareja crece, generando tanto apoyo como críticas.
 
